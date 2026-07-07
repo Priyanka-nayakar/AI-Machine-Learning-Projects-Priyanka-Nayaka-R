@@ -114,4 +114,4 @@ Pfizer, GE, Mercedes-Benz (Dimension Data & Microland) — multi-site infrastruc
 Get in touch
 
 📧 rpriyank222@gmail.com
-🔗 LinkedIn — www.linkedin.com/in/priyanka-nayaka-r-63247754
+🔗 LinkedIn - [](url)www.linkedin.com/in/priyanka-nayaka-r-63247754
